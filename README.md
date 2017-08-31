@@ -1,4 +1,4 @@
 # hello_woo
-hello
-这是我更改过的。fenzhi1
-的V型从v飞撒啊啊飞
+收藏个国外好玩的网站
+http://www.thinkgeek.com
+看起来还不错
